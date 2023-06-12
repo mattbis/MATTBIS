@@ -13,4 +13,3 @@ i. buy me a new computer(s) k thx ( zero budget productions )
 #### are you a bot?
 - i. No in fact i block bots since nobody can follow NN,NNN K people
 - ii. Did you really star all those? Yes I did.. Ask Github no API used. 
-- iii. Do you remember those projects? Yes about 65%... I even look at the source code! 
