@@ -1,7 +1,7 @@
 JavaScript since it start, and everything else in varying levels. I have worked with a lot of weird programming. 
 
-1. find work ( cross-functional = point me to something it will get done )
-2. do work
+1. find work ( see linkedin profile )
+2. do work ( properly )
 
 #### outside work
 i. continue finishing music
