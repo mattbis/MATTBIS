@@ -8,4 +8,4 @@ i. continue finishing music
 ii. continue art, photography and graphics
 
 #### why u take so long
-i. buy me a new computer k thx
+i. buy me a new computer k thx ( zero budget productions )
