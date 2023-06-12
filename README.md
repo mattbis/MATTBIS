@@ -12,4 +12,4 @@ ii. continue art, photography and graphics
 i. buy me a new computer(s) k thx ( zero budget productions )
 #### are you a bot?
 - i. No in fact I block bots since nobody can follow NN,NNN K people ( some i'am unsure about or I know they are real people )
-- ii. Did you really star all those? Yes I did.. Ask Github no API used. 
+- ii. Did you really star all those? Yes I did.. Ask Github no API used. In fact I actually read the source for quite a bit of it ...
