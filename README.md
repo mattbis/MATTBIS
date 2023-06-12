@@ -11,5 +11,5 @@ ii. continue art, photography and graphics
 #### why u take so long
 i. buy me a new computer(s) k thx ( zero budget productions )
 #### are you a bot?
-- i. No in fact i block bots since nobody can follow NN,NNN K people
+- i. No in fact I block bots since nobody can follow NN,NNN K people
 - ii. Did you really star all those? Yes I did.. Ask Github no API used. 
